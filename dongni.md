@@ -1,12 +1,13 @@
 2018-08-20
-their citizens
-wealth where
-constitution 宪法
-2018-08-22
-anarchy 无政府状态
-enforce the laws
-autocracy 独裁政府
-oligarchy 寡头政治
+their citizens  
+wealth where  
+constitution 宪法  
+
+2018-08-22  
+anarchy 无政府状态  
+enforce the laws    
+autocracy 独裁政府  
+oligarchy 寡头政治  
 
 2018-08-26
 a person's debt /  dead
