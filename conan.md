@@ -32,4 +32,14 @@ In the name of God, Rebecca. shut up 看在上帝的份上
 Oh, it's all ruined.  
 I miss the dinner we used to have. I missed us.  
 Andy, don't you see? This is us.  
-"This is Conan" New, this spring on tbs.  TBS春季全新上线。
+"This is Conan" New, this spring on tbs.  TBS春季全新上线。  
+
+#This is Conan 2  
+Man, what a tough day, but at least I get to come home to what matters most.  
+多忙的一天，但至少我可以回家，见到最重要的东西   
+All the shows run together after a while.  
+所有节目又要开始抢收视了。  
+You were hilarious.幽默  
+___
+
+# The Game of Thrones
