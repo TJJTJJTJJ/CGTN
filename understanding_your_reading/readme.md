@@ -717,3 +717,547 @@ preoccupation 关注焦点
 Technology can help solve the problem of bad, absent teachers in poor-country schools.
 
 * bad, absent teachers 师资力量薄弱，教师匮乏
+
+### para1
+
+* enroll 注册，报名，入学，上课
+* awful 强调程度的
+
+## 2018-12-04
+
+### Title
+
+Why suicide is falling around the world?
+
+### para1
+
+* at a global level, 全球范围内
+* down by / down to 下降了/ 下降到了
+* A is three times as many as those
+
+### para2
+
+* urbanisation 城市化
+* take their own lifes 夺去生命，自杀
+* A and B helped=The reason is A and B. 某一件事发生的部分原因是...拟人化
+* account 账户
+* account of sth. 关于XX的故事，
+* drive sb. to adj.
+* overbearing 咄咄逼人
+* grip 束缚；抓住
+* grip of tradition loosen 传统的势力减弱
+* get a grip on yourself
+* have sth. handing/ at hand/ to hand 很容易拿到某东西
+
+### para3
+
+* impulsive 冲动的
+* contemplate 周密考虑，打算做某事
+* a suicide postponed is likely to be a suicide prevented 如果轻生者从深渊边上退回来一次，他们可能再也不会走上悬崖
+
+## 2018-12-05
+
+### Title
+
+Bali resort bans smartphones from poolside to enforce relaxation.
+
+* resort 度假胜地；求助
+* ban .. from sth.
+* poolside 泳池边
+* enforce 强迫施行法律
+* enforce law
+
+### para1
+
+put it on social media 晒在媒体上
+
+### para2
+
+* one Bali resort 某巴厘岛度假村
+* put sth to the test 接受检验
+* in a bid to 目的是
+* surrounding adj 附近的
+* surroundings n 周围的事物
+* absorb surroundings 全身心浸入周边美景
+* stare at a screen 玩手机
+
+### para3
+
+* detox 戒毒瘾，清毒
+* ruling 法官的裁定
+* rule 一般意义的规定
+* digital detox ruling 数码戒断规定
+* forcibly 强行地
+* tether 绳子；用绳子拴住动物
+* untether people from sth. 把人们从XXX中解放出来
+* compulsively 强迫性地
+* phobia 恐惧症
+* nomophobia 恐惧症
+* switch off 关机；短暂地放松；对XXX没有兴趣
+* depression 抑郁症；沮丧；经济萧条
+* social media use 社交媒体的使用
+
+### para4
+
+* poll 民意调查
+* survey 广义地调查
+* holiday makers 度假者
+* Deloitte 徳勤
+
+### para5
+
+* take a break from doning 从XXX中解脱出来，休息一下
+* take a break 休息一下
+* cash in 等价兑换，从XXX中获利
+* cash in on 从XXX中获利，含贬义
+* force 人，强迫某人做不情愿的事情
+* enforce 物，强制施行法律等制度，强迫某件事发生
+* there has been a surge of interest in XXX的兴趣猛增
+
+### para6
+
+* respondent 回复者，特制调查中的受访人
+* on the basis of 在XXX的基础上
+* fodder for 素材，为了实现某个目的可以利用的人或物
+
+## 2018-12-06
+
+### Title
+
+EU agrees 'best possible' Brexit deal, urges Britons to back May
+
+* EU european Union 欧盟
+* best possible 可能范围最好的
+* Brexit 脱欧
+* deal 一般意义的协议
+* urge force 
+* Britons 英国人
+* back 支持
+
+### para1
+
+* seal 封上
+* seal a deal 签订协议
+* package 一揽子协议
+* in a warning 在告诫的情况下
+* warning to sb not to do sth.
+* endorse 公开场合同意
+* treaty 协议，国家之间的协议，比deal正式
+* draw up/ sign treaty 起草/签署
+* terms 条约
+* outline 概述
+* pact 条约
+
+### para2
+
+* post-summit 峰会后的
+* sales pitch 推销论点
+* news conference 新闻发布会
+* make a sales pitch for her plan 宣传她的计划
+* maintain close alignment with 与XXX保持高度一致
+
+### para3
+
+* open the door to = make sth possible 使XX成为可能
+* condemen sb to sth 迫使某人忍受某事
+* condemen 谴责
+* make the/a case for sth = to argue sth is a best thing to do 为某事陈述理由
+* resign 辞职
+
+### para4
+
+* rubber-stamp 不加考虑地走过场地批准某事；橡皮图章
+* to be followed by 后置定语
+* status-quo transition period 维持现状的过渡期
+* status quo 现状
+* exchange 讨论；交换
+
+## 2018-12-08
+
+### Title
+
+Malaysia bets on durian as China goes bananas for worlds' smelliest fruit.
+
+* bet on sth 以某物为赌注
+* gamble
+* You bet. 肯定的答复
+* bananas 疯狂的；香蕉
+
+### para1
+
+* stinky 有臭味的
+* spiky 有尖刺的
+* be set to = be likely to do
+* rush to do 赶忙去做某事
+* cash in on 从中谋利
+* unprecedented 史无前例的
+
+### para2
+
+* durian 榴莲
+* sewer 下水道
+* turpentine 松节油的味道
+* property tycoon 房产大亨
+* make forays into 初次尝试某事，进军
+
+### para3
+
+* count on 预计某事会发生
+
+### para4
+
+* pay top dollar for 高价
+* bitter-sweet 甜中带苦
+* quadruple 四倍
+
+### para5
+
+* account for 占比
+* pulp/paste 果肉/酱
+
+## 2018-12-08
+
+### Title
+
+American is killed by bow and arrow on remote Indian island
+
+* bow 弓；弯腰鞠躬
+* remote 遥远的；地点空间的遥远；时间的遥远；人与人血缘关系的遥远；人的行为或态度的疏远
+
+### para1
+
+### para2
+
+* in his 20s 在他20多岁
+* kayak 皮艇
+* set foot on 踏上
+* sealed-off 封印；封闭
+* enigmatic 迷一般的，神秘的
+* isolated 与世隔绝的；隔离的
+* tribe 部落
+
+### para3
+
+* push ahead 坚持下去；一意孤行
+* push ahead with 大力推行某事
+* sentinel 哨兵
+
+### para4
+
+* set on = get on
+
+## 2018-12-10
+
+### Title
+
+Trump pulls punches at global summit, making nice with foes and avoiding feuds.
+
+* pull punch: 原击打对手的时候手下留情，引申为留有余地；多与否定共用，指毫不留情。
+* make nice with sb. 对某人友善；塑料情
+* foe 敌人
+* feud 争吵；结仇，family feud 世仇 == argue
+
+### para1
+
+* manage 设法成功
+* antagonize 造成对抗引起敌意
+* without visible eruption 没有明显的失态
+
+### para2
+
+* endorse 同意
+* curtail his ambition 克制野心
+* curtail 缩减
+* trash 抨击；垃圾
+
+### para3
+
+* self-restraint 自我克制
+* engage 参与
+
+### para4
+
+* multilateral
+* hostile to sth 反对某事；对某事怀有敌意
+* assent to sth 同意
+* reiterate 重申，
+* shared commitment 公共承诺
+* critique 评判，中性词
+* rail against/at/ about sth 抱怨；攻击
+
+### para5
+
+* things could unravel 局势可能崩溃
+* retraction of ambition 收敛野心
+* make a fuss 抱怨
+* forge cooperation 展开合作
+
+## 2018-12-11
+
+### Title
+
+Obituary: George H.W. Bush died on November 30th
+
+### para1
+
+* felt-tipped pen 油性笔
+* supply of 一些,量词
+* note-card 便签卡片
+* clumsy 言语笨拙的
+* courteous 有礼貌的
+* get sth. across to sb 清楚地表达意见
+
+### para2
+
+* correspondence 书信往来
+* memoirs 回忆录
+* the time came to do sth.
+* salve 安慰;药膏
+* thrash 击败
+
+### para3
+
+* doting 溺爱的
+* seaman 水兵
+* mortify 羞愧= extremely shame 
+* nutty 傻里傻气的
+* of the moment 此刻
+* heartbeat 心跳;心脏
+* it's all about heartbeat 都是真性情
+
+### para4
+
+* forte 特长
+* envoy 特使
+* follower of the hearse 跟随灵车的人
+* think in terms of global power 思维模式是全球格局的权力博弈
+* heady 冲昏头脑;令人兴奋的
+
+## 2018-12-12
+
+### Title
+
+'Comfort women': anger as Japan paper alters description of WWII terms.
+
+* Comfort women 慰安妇
+* Japan paper 日本报纸
+* alter 改变
+* WWII 二战
+* WWII terms 二战术语
+
+### para1
+
+* spark anger/ interest 引发愤怒
+* revise 修改或者订正
+* a revised 修订版
+* peninsula 半岛
+* Korean peninsula 朝鲜半岛
+
+### para2
+
+* motto 宣传语
+* without fear or favour 不害怕也不偏袒
+* favour 偏袒，赞同
+* euphemism 委婉语
+* brothel 妓院
+* tens of thousands of sb.
+
+### para3
+
+* vary widely 有很大的差异
+* throughout the course of the war 二战发生的过程
+* the course of sth 某事发生的经过
+
+### para4
+
+* has added to concern 引发担忧
+* sections of the media 部分媒体
+* bow to sb 屈从某人
+* in a more favourable light 美化的角度
+* portray 描述
+
+### para5
+
+* editorial shft 措辞
+* dissolve 解散；消失
+* spark outrage
+* rebuke 指责，谴责
+* in effect 事实上
+* terminate 终止，终点
+* settle 解决
+* impasse over 关于某某的僵局
+
+## 2018-12-13
+
+### Title
+
+Lab-grown meat of the future is here-and may even sustainably fill demand
+
+* laboratory 英美发音不同
+* UNI-university
+* lab-grown 在实验室培育的；在实验室成长的
+* sustainable 可持续的
+* fill demand
+
+### para1
+
+* entrepreneur
+* in a sustainable, affordable way 可持续，不昂贵的方式
+* a bunch of 一束花；一群人=a group of：大量的=a large number of
+
+### para2
+
+have given rise to a number of startup 催生了很多初创公司
+
+looking to fill our voracious demand in ways 希望（考虑）以XX的方式来满足巨大需求
+
+
+
+* give rise to 引发了
+* startup 高科技领域的初创公司
+* look to 想办法去改进=to consider sth how to make better
+* voracious 贪婪地，巨大的
+* animal treatment 非人道对待
+* methane 甲烷
+* environmentally-friendly 环保，环境友好型
+
+### para3
+
+All of these companies use proprietary processes to harvest cells 这些公司都是通过专有的处理方法来获取细胞
+
+* Shanghai-based company 总部位于上海的公司
+* cell-based meats
+* fat and muscle cells 脂肪和肌肉细胞
+* property 财产
+* proprietary 专利，专有的
+
+### para4
+
+there are plenty of hurdles facing the industry. 这个产业面临着很多阻碍
+
+* hurdle 阻碍
+* hurdles 跨栏
+* educating public 引导公众接受某事
+* contentious 有争议的
+* controversial 有争议的
+
+### para5
+
+our global populaion swells and the earth's natural resources diminish
+
+* make a few bucks 赚钱
+* buck 美元
+* nothing wrong with that.
+
+## 2018-12-14
+
+### Title
+
+Is a cure for Aids within reach?
+
+* a cure for cancer 癌症的治疗方法
+* within reach 触手可及的
+
+### para1
+
+* it jump the species barrier 跨越物种界限
+* devastating 毁灭性的
+* a devastating explosion
+* stubborn 顽固的；难以对付的
+* adversary 对手，敌人
+* rival 有着公共目标的竞争者
+* remain + 名词 保持某种身份不变
+* at one time 曾经
+* cocktail 混合物；鸡尾酒
+* a cocktail of 30 pills 30片不同的药品
+
+### para2
+
+* pull into view 进入视野，XX的到来
+* be in sight 在望，有可能出现；与 within reach 对应
+* ask 探寻
+* out-and-out = in every way 极大地，完全地；
+* contract 感染；合同
+
+### para3
+
+* lie in 存在；在于
+* draw sth out of 拔出；抽离出
+* latent stage 潜伏期
+
+### para4
+
+* once and for all 一次了结的；最终彻底的
+
+### para5
+
+* deadliness 致命性
+* pinpoint 精确定位
+* efficacy 治疗方法的功效
+
+## 2018-12-16
+
+### Title
+
+'Aquaman' is already a box office titan.
+
+* Aquaman 海王
+* box office 票房
+* titan 巨人
+* box office titan 票房爆棚
+
+### para1
+
+* the box office action 票房大战
+* collect $94 million in tickets 票房收入
+* validate 证明了，验证了，使有效
+* Middle Kindom 中国
+
+### para2
+
+* grown+adj 变得怎么样
+* selective 挑剔
+* selective school 择优录取
+* locally made movies 国产片
+* new 最近才出现的
+* display a new preference for locally made movie 最近对国产片心生偏爱
+* extravagant 奢侈的；令人赞叹的；
+
+### para3
+
+* The upshot 意料之外的结局=result
+* flop 猛然坐下；失败
+* leave a stink 引发轩然大波
+* rollout 首次展示
+* stink 恶臭
+* make and market 制作并推广
+
+### para4
+
+* among the slowest moviegoing periods of the year 一年之内的观影淡季
+* festivity 庆祝活动
+
+## 2018-12-16
+
+### Title
+
+
+
+### para1
+
+
+
+### para2
+
+
+
+### para3
+
+
+
+### para4
+
+
+
+### para5
+
